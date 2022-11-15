@@ -1,2 +1,29 @@
-# GoGuardian-Beamer
-GoGuardian Beamer Beta, GoGuardian is 100% def gonna sue me lol.
+# GoGuardian Beamer
+*GoGuardian Beamer Beta, GoGuardian is 100% def gonna sue me lol.*
+
+last updated: 11.14.22 
+
+updated by: sleepi (@sleepykoder)
+
+REJECT THE SLAVE MENTALITY, FIGHT THE MATRIX.
+----
+NEO, WAKE UP... CHOOSE, 
+**FIGHT THE MATRIX** OR **ACCEPT THE SLAVE MENTALITY**
+
+ESCAPE THE MATRIX, 
+
+REJECT BEING TRACKED WITH FANCY NSA TYPE SPYWARE, 
+
+THIS IS YOUR CHANCE TO MAKE THE MOVE, 
+
+THINGS ARE ONLY GOING TO GET WORSE, 
+
+WILL YOU TAKE THE RED PILL?
+
+
+# COMING SOON!! GET HYPE!!
+
+
+
+
+
